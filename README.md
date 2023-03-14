@@ -11,6 +11,7 @@ As a highly motivated and detail-oriented data analyst, I possess a strong found
 * ✉️  You can contact me at [mdumaer007@gmail.com](mailto:mdumaer007@gmail.com)
 * 🧠  I'm learning PowerBI and Statistics
 * 🤝  I'm open to collaborating on Data Analytics Projects
+* 📄 Know about my experiences > [Here](https://drive.google.com/file/d/1LiNchyIX5k-bqBfIxbETpc6ANCVac_RR/view?usp=share_link)
 * ⚡  Im a Gym FreaK!!!
 
 ### Skills
